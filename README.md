@@ -10,4 +10,12 @@
 
 - Xin được cúi đầu tri ân tất cả những ân tình quý giá đã góp phần làm nên tôi của ngày hôm nay. Những nghĩa tình ấy sẽ mãi là động lực để tôi tiếp tục sống, cống hiến và giữ trọn ngọn lửa yêu nghề trên con đường hành y phía trước.
 
-Đang cập nhật...
+## Đang lấy ý kiến đề nghị tặng thưởng Huân chương Lao động hạng Ba
+
+[<img width="600" height="315" alt="image" src="https://github.com/user-attachments/assets/178cb930-7d12-4e2d-b131-4eafbbcf85ca" />](https://camau.gov.vn/thong-tin-thi-dua-khen-thuong/lay-y-kien-nhan-dan-doi-voi-15-ca-nhan-de-nghi-tang-thuong-huan-chuong-lao-dong-301599?gidzl=Uz137IZroXbvoaeR9-pE67VEIHy_w9fBFCyS66wwdqyydqWVFxl06c-U4au_ky8UEfqIIJ5c4R4rBF367G)
+
+
+## Đang lấy ý kiến đề nghị xét tặng danh hiệu “Thầy thuốc Ưu tú”
+
+[<img width="610" height="365" alt="image" src="https://github.com/user-attachments/assets/04bbecde-f620-4d18-8b24-b10d7051ef2b" />
+](https://camau.gov.vn/tin-tuc-su-kien/33-ho-so-duoc-hoi-dong-cap-tinh-de-nghi-xet-tang-danh-hieu-thay-thuoc-nhan-dan-thay-thuoc-uu-tu-304506?fbclid=IwdGRzaATpJyhjbGNrBOknCXBkb2YBZXh0bgNhZW0CMTEAc3J0YwZhcHBfaWQMMzUwNjg1NTMxNzI4AAEeAgNTIo76y0SsOFc2Sv0rEFuXSoOfF1WVVHWAXXJ1PvPwuuuTl0DMfxbpFm8_aem_MiBrIc9Z6C_21URDUxx7ag&gidzl=DECq6u7Haoqs-JqTZiYNB3ZuEnAMoSPqS_bk5SURmt1pgJeIbfgS9I2eO4EMcfuXTQjWH3601fy7XTIVAG)
