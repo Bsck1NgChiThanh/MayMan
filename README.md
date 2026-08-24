@@ -1,7 +1,12 @@
-# Một Chặng Đường, Vạn Ân Tình
-*Tháng 8/2026*
+<h1 align="center">Một Chặng Đường, Vạn Ân Tình</h1>
 
-<img width="149" height="214" alt="Ản Bs Thành 4x6" src="https://github.com/user-attachments/assets/d11e7e99-f069-4974-a790-6a1e98dadb9d" />
+<p align="right">
+<b><i>Tháng 8/2026</i></b>
+</p>
+
+<p align="center">
+  <img width="149" height="214" alt="Ảnh BS Thành 4x6" src="https://github.com/user-attachments/assets/d11e7e99-f069-4974-a790-6a1e98dadb9d" />
+</p>
 
 ## Đang lấy ý kiến đề nghị tặng thưởng Huân chương Lao động hạng Ba
 
@@ -33,4 +38,6 @@
 
 - Và hơn tất cả, tôi vẫn tin rằng điều quý giá nhất không nằm ở danh hiệu hay phần thưởng, mà nằm ở cơ hội được tiếp tục khoác trên mình chiếc áo blouse trắng, được cống hiến trí tuệ, tâm huyết và lòng nhân ái để phục vụ nhân dân. Dù kết quả đến hôm nay hay vào một ngày nào đó trong tương lai, tôi vẫn sẽ bước tiếp với lòng biết ơn, sự khiêm nhường và trách nhiệm của một người thầy thuốc. Bởi lẽ, danh hiệu cao quý nhất đối với người làm nghề y không chỉ là sự ghi nhận của xã hội, mà còn là niềm tin yêu của người bệnh và sự thanh thản trong lương tâm khi đã sống trọn vẹn với hai chữ "cống hiến" mà mình đã lựa chọn từ những ngày đầu bước vào nghề.
 
-#### BSCKI. Nguyễn Chí Thành
+<p align="right">
+<b><i>BSCKI Nguyễn Chí Thành</i></b>
+</p>
