@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <img width="149" height="214" alt="Ảnh BS Thành 4x6" src="https://github.com/user-attachments/assets/d11e7e99-f069-4974-a790-6a1e98dadb9d" />
+  <img width="350" alt="Ảnh BS Thành 4x6" src="https://github.com/user-attachments/assets/d11e7e99-f069-4974-a790-6a1e98dadb9d" />
 </p>
 
 ## Đang lấy ý kiến đề nghị tặng thưởng Huân chương Lao động hạng Ba
